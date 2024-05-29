@@ -1,0 +1,1 @@
+# ishga-tushirish-amaliyoti
